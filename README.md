@@ -3,7 +3,7 @@
 - 👍🏻 Interests: Journaling, Photography, Exploring Places..
 - 📫 Let's Connect!
 -     Email: pradeep.yadav.bhilai.6@gmail.com
-- 😄 Skills: Microsoft's 360, Data Management, Data Entry...
+- 😄 Skills: Microsoft's 360, Data Analysis, "C" Language
 - ⚡ Goal's: Want to be a Young Entrepreneur in Tech Industry
 
 HI There..
